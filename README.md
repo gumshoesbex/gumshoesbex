@@ -5,6 +5,6 @@
 
 Here are some ideas to get you started: -->
 
-- 🔭 I’m currently working on prework for Tech Elevator.
+- 🔭 I’m currently studying at Tech Elevator!
 - 😄 Pronouns: she/hers
 - ⚡ Fun fact: I recently played drums for a production of Urinetown.
